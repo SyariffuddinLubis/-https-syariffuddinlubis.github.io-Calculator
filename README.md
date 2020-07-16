@@ -1,1 +1,0 @@
-# -https-syariffuddinlubis.github.io-Calculator
